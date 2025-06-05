@@ -2,7 +2,8 @@
 
 ### Sibling domains
 
-- **[i.supa.codes](https://i.supa.codes/)**
+- **[up.amrt.ca](https://up.amrt.ca/)**
+- [i.supa.codes](https://i.supa.codes/)
 - [kappa.lol](https://kappa.lol/)
 - [gachi.gay](https://gachi.gay/)
 - [femboy.beauty](https://femboy.beauty/)
